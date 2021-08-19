@@ -1,0 +1,1 @@
+# segreation_index
